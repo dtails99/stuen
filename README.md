@@ -6,3 +6,4 @@ hvilken størrelse er det her så?
 ### en endnu mindre størrelse
 er alt her så med tre bimser?
 dette er skrevet af aage
+en sidste update
